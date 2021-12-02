@@ -19,6 +19,6 @@
 
 ## Discord
 
-<img align="left" src="https://discord.c99.nl/widget/theme-4/796868939497865216.png">
+### Out#9999
 
 
