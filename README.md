@@ -17,6 +17,9 @@
 <br>
 <br>
 
+## Page view counter
+<img align="center" src="https://count.getloli.com/get/@OucikToKozak?theme=rule34" />
+
 ## Discord
 
 ### Out#9999
